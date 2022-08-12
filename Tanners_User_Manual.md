@@ -31,7 +31,7 @@
 
 #### *How to help me*
 * *I am a thorough individual. As such, when I am learning something new I tend to take my time so I don't accidentally miss something important. In these moments, your patience will always be appreciated.*
-* *I will be receptive to any hints that I need be doing something better, but encouraging me on what I'm doing well is the best way to see improvement.*
+* *I will be receptive to any hints that I need to be doing something better, but encouraging me on what I'm doing well is the best way to see improvement.*
 * *I give a lot of attention to detail. Let me know when this is unnecessary so that I can move faster.*
 
 #### *What people misunderstand about me*
